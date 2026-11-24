@@ -1,4 +1,6 @@
-## Hi, I'm Revanth 👋
+## Hi, I'm Revanth Levaka 👋
+
+In Short, Revaa, 
 
 I'm a **polymath** operating at the intersection of **AI systems engineering** and **active filmmaking**. 
 
